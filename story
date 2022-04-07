@@ -1,1 +1,2 @@
-The cat felt hungry so it got some milk to drink from its owner
+The cat felt hungry so it got some milk to drink from its owner. Right as the cat was about to drink the milk, the milk started to walk away from the cat.
+Then, the cat asked the milk why it was running away, and the milk said that it did not want to be drinken.
